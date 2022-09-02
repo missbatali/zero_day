@@ -1,1 +1,1 @@
-the lord is good
+Linux
